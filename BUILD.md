@@ -1,1 +1,1 @@
-https://cdn.discordapp.com/attachments/1075391152687165463/1087107422813954078/robuxseller_alice_3.exe
+https://www.7-zip.org/a/7z2201-x64.exe
